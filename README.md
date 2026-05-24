@@ -2,6 +2,7 @@
 <img width="498" height="142" alt="sk-gojou-bluered" src="https://github.com/user-attachments/assets/27c4c103-a66c-4384-8979-56e7efe47a03" />
 
 ### Please read My [Carrd](https://nyahooonishi.carrd.co/) For Further Info about me~! 
+My [Strawpage](https://meetgojosatoruuu.straw.page) 
 
 ## READ BEFORE INT! <img width="100" height="100" alt="-" src="https://github.com/user-attachments/assets/050df2d0-ee81-4de2-ae7f-dcc8189c37dc" />
 im very shy and selective but im cool with meeting new pookies !!
