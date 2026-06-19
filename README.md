@@ -1,19 +1,19 @@
 <div align="center">  
   
-## Moshi Moooosh! Nishi / Gojo Dayooo~~!! 👋
+## Moshi Moooosh! Nishi / Pier Dayooo~~!! 👋
 
-  ### Please read My [Carrd](https://nyahooonishi.carrd.co/) For Further Info about me~! 
-My [Strawpage](https://meetgojosatoruuu.straw.page) 
+  ### Please read My [Carrd](https://nyahooonishi.carrd.co/) For Further Info about me~! <img width="50" height="50" alt="---" src="https://github.com/user-attachments/assets/94693129-52cd-41d2-bab4-3384931c6fe3" />
+## My [Strawpage](https://meetgojosatoruuu.straw.page) <img width="50" height="50" alt="---" src="https://github.com/user-attachments/assets/94693129-52cd-41d2-bab4-3384931c6fe3" />
 
 </div>
 
 <p align="center">
- <img width="400" height="263" alt="elsword-overmind" src="https://github.com/user-attachments/assets/74a5e5c0-3b11-46dd-a698-1f4c9f4c97c0"></center>
+<img width="498" height="281" alt="the-freak-circus-pierrot" src="https://github.com/user-attachments/assets/d6bc44d3-d0fe-418d-be5f-aea5cda06b76" /></center>
 
 
 <div align="center">  
 
-## READ BEFORE INT! <img width="110" height="110" alt="elsword-add (1)" src="https://github.com/user-attachments/assets/a982c249-223d-4b2c-af83-2f6930acc10f" />
+  ## <img width="100" height="100" alt="pierrot-tfc" src="https://github.com/user-attachments/assets/d2519518-1f3f-4601-8412-68b9e25dde5a" /> READ BEFORE INT!
 
 </div>
 
@@ -23,7 +23,8 @@ Please int with me first before I consider adding you **thats unless you're pook
 
 <div align="center">  
 
-# DNI <img width="170" height="120" alt="elsword-add (4)" src="https://github.com/user-attachments/assets/d707e218-c688-4389-afbb-50ea28569281" />
+# DNI <img width="50" height="50" alt="---" src="https://github.com/user-attachments/assets/94693129-52cd-41d2-bab4-3384931c6fe3" />
+
 
 </div>
 
@@ -33,7 +34,7 @@ I only consider 15+ years old otherwise if you're underage I will not tolerate b
 
 <div align="center">  
 
-# INT <img width="170" height="120" alt="elsword-add (3)" src="https://github.com/user-attachments/assets/55d4b3c1-b532-4c2c-b83f-20cf60c8659c" />
+# INT <img width="50" height="50" alt="---" src="https://github.com/user-attachments/assets/94693129-52cd-41d2-bab4-3384931c6fe3" />
 
 </div>
 
@@ -42,7 +43,7 @@ I usually sit down by my friends / Party / ppl I know, and afk there HOWEVER Ple
 
 <div align="center">  
 
-# in terms of block / hide  <img width="170" height="120" alt="elsword-add (5)" src="https://github.com/user-attachments/assets/6670cb2d-d5be-4145-8f58-3030bc1bd8b9" />
+# in terms of block / hide  <img width="50" height="50" alt="---" src="https://github.com/user-attachments/assets/94693129-52cd-41d2-bab4-3384931c6fe3" />
 
 </div>
 
@@ -51,5 +52,6 @@ if you found yourself hidden / block by me  note that this is because you've don
 
 if you are blocked permanently Yes, I just dislike being associated with you. However if you are willing to talk about it You may consider telling me or a friend of mine.
 
-
+<div align="center">  
+<img width="460" height="203" alt="pierrot-jester" src="https://github.com/user-attachments/assets/299c2b18-b9da-4133-8ce6-ad41bd582f12" />
 
