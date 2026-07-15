@@ -1,10 +1,10 @@
 <div align="center">  
   
-## Greetings. ♦
- My name Is Xavion.
+## 𝑮𝒓𝒆𝒆𝒕𝒊𝒏𝒈𝒔. ♦
+𝐌𝐲 𝐧𝐚𝐦𝐞 𝐈𝐬 𝐗𝐚𝐯𝐢𝐨𝐧.
 
-  ### Please read My [Carrd](https://nyahooonishi.carrd.co/) For Further Info about me~! <img width="50" height="50" alt="---" src="https://github.com/user-attachments/assets/94693129-52cd-41d2-bab4-3384931c6fe3" />
-## My [Strawpage](https://meetgojosatoruuu.straw.page) <img width="1199" height="364" alt="56600a11a706180e2a17c1d48dba38ae" src="https://github.com/user-attachments/assets/43c29fac-205a-471f-8913-71f44b5bd690" />
+  ### 𝑷𝒍𝒆𝒂𝒔𝒆 𝒓𝒆𝒂𝒅 𝑴𝒚 [𝑪𝒂𝒓𝒓𝒅](https://nyahooonishi.carrd.co/) 𝑭𝒐𝒓 𝑭𝒖𝒓𝒕𝒉𝒆𝒓 𝑰𝒏𝒇𝒐 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆,
+## 𝑴𝒚 [𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://meetgojosatoruuu.straw.page) <img width="1199" height="364" alt="56600a11a706180e2a17c1d48dba38ae" src="https://github.com/user-attachments/assets/43c29fac-205a-471f-8913-71f44b5bd690" />
 
 
 </div>
@@ -20,43 +20,34 @@
 
 <div align="center">  
 
-  ## READ BEFORE INT! ♦
+  ## 𝑹𝒆𝒂𝒅 𝑩𝒆𝒇𝒐𝒓𝒆 𝑰𝒏𝒕 ♦
 
 </div>
 
-im very shy and selective but im cool with meeting new pookies !! 
-Please int with me first before I consider adding you **thats unless you're pookies with my pookies**
-**I am very introverted**, I have a hard time Making new friends let alone Doing the first moves, so feel free to cuddle or int with me!!
-
+𝙞𝙢 𝙫𝙚𝙧𝙮 𝙨𝙝𝙮 𝙖𝙣𝙙 𝙨𝙚𝙡𝙚𝙘𝙩𝙞𝙫𝙚 𝙗𝙪𝙩 𝙞𝙢 𝙘𝙤𝙤𝙡 𝙬𝙞𝙩𝙝 𝙢𝙚𝙚𝙩𝙞𝙣𝙜 𝙣𝙚𝙬 𝙥𝙤𝙤𝙠𝙞𝙚𝙨 !!  𝙋𝙡𝙚𝙖𝙨𝙚 𝙞𝙣𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚 𝙛𝙞𝙧𝙨𝙩 𝙗𝙚𝙛𝙤𝙧𝙚 𝙄 𝙘𝙤𝙣𝙨𝙞𝙙𝙚𝙧 𝙖𝙙𝙙𝙞𝙣𝙜 𝙮𝙤𝙪 **𝙩𝙝𝙖𝙩𝙨 𝙪𝙣𝙡𝙚𝙨𝙨 𝙮𝙤𝙪'𝙧𝙚 𝙥𝙤𝙤𝙠𝙞𝙚𝙨 𝙬𝙞𝙩𝙝 𝙢𝙮 𝙥𝙤𝙤𝙠𝙞𝙚𝙨** **𝙄 𝙖𝙢 𝙫𝙚𝙧𝙮 𝙞𝙣𝙩𝙧𝙤𝙫𝙚𝙧𝙩𝙚𝙙**, 𝙄 𝙝𝙖𝙫𝙚 𝙖 𝙝𝙖𝙧𝙙 𝙩𝙞𝙢𝙚 𝙈𝙖𝙠𝙞𝙣𝙜 𝙣𝙚𝙬 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 𝙡𝙚𝙩 𝙖𝙡𝙤𝙣𝙚 𝘿𝙤𝙞𝙣𝙜 𝙩𝙝𝙚 𝙛𝙞𝙧𝙨𝙩 𝙢𝙤𝙫𝙚𝙨, 𝙨𝙤 𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙘𝙪𝙙𝙙𝙡𝙚 𝙤𝙧 𝙞𝙣𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚!!
 <div align="center">  
 
-# DNI ♦
+# 𝑫𝑵𝑰 ♦
 
 
 </div>
 
-**I DISLIKE PROBLEMATIC PEOPLE.** I will block freely if you're too immature for my Taste.
-I only consider 15+ years old otherwise if you're underage I will not tolerate being associated with you
-**Note:** I give considerations with minors as long as you know how to use your brain properly OTHERWISE I am free to block you.
-
+**𝙄 𝘿𝙄𝙎𝙇𝙄𝙆𝙀 𝙋𝙍𝙊𝘽𝙇𝙀𝙈𝘼𝙏𝙄𝘾 𝙋𝙀𝙊𝙋𝙇𝙀.** 𝙄 𝙬𝙞𝙡𝙡 𝙗𝙡𝙤𝙘𝙠 𝙛𝙧𝙚𝙚𝙡𝙮 𝙞𝙛 𝙮𝙤𝙪'𝙧𝙚 𝙩𝙤𝙤 𝙞𝙢𝙢𝙖𝙩𝙪𝙧𝙚 𝙛𝙤𝙧 𝙢𝙮 𝙏𝙖𝙨𝙩𝙚. 𝙄 𝙤𝙣𝙡𝙮 𝙘𝙤𝙣𝙨𝙞𝙙𝙚𝙧 15+ 𝙮𝙚𝙖𝙧𝙨 𝙤𝙡𝙙 𝙤𝙩𝙝𝙚𝙧𝙬𝙞𝙨𝙚 𝙞𝙛 𝙮𝙤𝙪'𝙧𝙚 𝙪𝙣𝙙𝙚𝙧𝙖𝙜𝙚 𝙄 𝙬𝙞𝙡𝙡 𝙣𝙤𝙩 𝙩𝙤𝙡𝙚𝙧𝙖𝙩𝙚 𝙗𝙚𝙞𝙣𝙜 𝙖𝙨𝙨𝙤𝙘𝙞𝙖𝙩𝙚𝙙 𝙬𝙞𝙩𝙝 𝙮𝙤𝙪 **𝙉𝙤𝙩𝙚:** 𝙄 𝙜𝙞𝙫𝙚 𝙘𝙤𝙣𝙨𝙞𝙙𝙚𝙧𝙖𝙩𝙞𝙤𝙣𝙨 𝙬𝙞𝙩𝙝 𝙢𝙞𝙣𝙤𝙧𝙨 𝙖𝙨 𝙡𝙤𝙣𝙜 𝙖𝙨 𝙮𝙤𝙪 𝙠𝙣𝙤𝙬 𝙝𝙤𝙬 𝙩𝙤 𝙪𝙨𝙚 𝙮𝙤𝙪𝙧 𝙗𝙧𝙖𝙞𝙣 𝙥𝙧𝙤𝙥𝙚𝙧𝙡𝙮 𝙊𝙏𝙃𝙀𝙍𝙒𝙄𝙎𝙀 𝙄 𝙖𝙢 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙗𝙡𝙤𝙘𝙠 𝙮𝙤𝙪.
 <div align="center">  
 
-# INT ♦
+# 𝑰𝑵𝑻 ♦
 
 </div>
 
-I usually sit down by my friends / Party / ppl I know, and afk there HOWEVER Please feel free to chat with me if you like!! I am very open and willing to chat with others!! 
+𝙄 𝙪𝙨𝙪𝙖𝙡𝙡𝙮 𝙨𝙞𝙩 𝙙𝙤𝙬𝙣 𝙗𝙮 𝙢𝙮 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 / 𝙋𝙖𝙧𝙩𝙮 / 𝙥𝙥𝙡 𝙄 𝙠𝙣𝙤𝙬, 𝙖𝙣𝙙 𝙖𝙛𝙠 𝙩𝙝𝙚𝙧𝙚 𝙃𝙊𝙒𝙀𝙑𝙀𝙍 𝙋𝙡𝙚𝙖𝙨𝙚 𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙘𝙝𝙖𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚 𝙞𝙛 𝙮𝙤𝙪 𝙡𝙞𝙠𝙚!! 𝙄 𝙖𝙢 𝙫𝙚𝙧𝙮 𝙤𝙥𝙚𝙣 𝙖𝙣𝙙 𝙬𝙞𝙡𝙡𝙞𝙣𝙜 𝙩𝙤 𝙘𝙝𝙖𝙩 𝙬𝙞𝙩𝙝 𝙤𝙩𝙝𝙚𝙧𝙨!! 
 
 
 <div align="center">  
 
-# in terms of block / hide  ♦
+# 𝙞𝙣 𝙩𝙚𝙧𝙢𝙨 𝙤𝙛 𝙗𝙡𝙤𝙘𝙠 / 𝙝𝙞𝙙𝙚  ♦
 </div>
 
-if you found yourself hidden / block by me  note that this is because you've done something I disliked, or just straight up problematic
-**however I don't block people permanently~!!**
-
-if you are blocked permanently Yes, I just dislike being associated with you. However if you are willing to talk about it You may consider telling me or a friend of mine.
+𝙞𝙛 𝙮𝙤𝙪 𝙛𝙤𝙪𝙣𝙙 𝙮𝙤𝙪𝙧𝙨𝙚𝙡𝙛 𝙝𝙞𝙙𝙙𝙚𝙣 / 𝙗𝙡𝙤𝙘𝙠 𝙗𝙮 𝙢𝙚  𝙣𝙤𝙩𝙚 𝙩𝙝𝙖𝙩 𝙩𝙝𝙞𝙨 𝙞𝙨 𝙗𝙚𝙘𝙖𝙪𝙨𝙚 𝙮𝙤𝙪'𝙫𝙚 𝙙𝙤𝙣𝙚 𝙨𝙤𝙢𝙚𝙩𝙝𝙞𝙣𝙜 𝙄 𝙙𝙞𝙨𝙡𝙞𝙠𝙚𝙙, 𝙤𝙧 𝙟𝙪𝙨𝙩 𝙨𝙩𝙧𝙖𝙞𝙜𝙝𝙩 𝙪𝙥 𝙥𝙧𝙤𝙗𝙡𝙚𝙢𝙖𝙩𝙞𝙘 **𝙝𝙤𝙬𝙚𝙫𝙚𝙧 𝙄 𝙙𝙤𝙣'𝙩 𝙗𝙡𝙤𝙘𝙠 𝙥𝙚𝙤𝙥𝙡𝙚 𝙥𝙚𝙧𝙢𝙖𝙣𝙚𝙣𝙩𝙡𝙮~!!**  𝙞𝙛 𝙮𝙤𝙪 𝙖𝙧𝙚 𝙗𝙡𝙤𝙘𝙠𝙚𝙙 𝙥𝙚𝙧𝙢𝙖𝙣𝙚𝙣𝙩𝙡𝙮 𝙔𝙚𝙨, 𝙄 𝙟𝙪𝙨𝙩 𝙙𝙞𝙨𝙡𝙞𝙠𝙚 𝙗𝙚𝙞𝙣𝙜 𝙖𝙨𝙨𝙤𝙘𝙞𝙖𝙩𝙚𝙙 𝙬𝙞𝙩𝙝 𝙮𝙤𝙪. 𝙃𝙤𝙬𝙚𝙫𝙚𝙧 𝙞𝙛 𝙮𝙤𝙪 𝙖𝙧𝙚 𝙬𝙞𝙡𝙡𝙞𝙣𝙜 𝙩𝙤 𝙩𝙖𝙡𝙠 𝙖𝙗𝙤𝙪𝙩 𝙞𝙩 𝙔𝙤𝙪 𝙢𝙖𝙮 𝙘𝙤𝙣𝙨𝙞𝙙𝙚𝙧 𝙩𝙚𝙡𝙡𝙞𝙣𝙜 𝙢𝙚 𝙤𝙧 𝙖 𝙛𝙧𝙞𝙚𝙣𝙙 𝙤𝙛 𝙢𝙞𝙣𝙚.
 
 <img width="1200" height="800" alt="8af8f0c282627fe35044e38f3f7bbbc2" src="https://github.com/user-attachments/assets/1a579485-3714-4dc7-ad91-265429bb7f2f" />
 
