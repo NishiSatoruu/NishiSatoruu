@@ -3,17 +3,23 @@
 ## Moshi Moooosh! Nishi / Pier Dayooo~~!! 👋
 
   ### Please read My [Carrd](https://nyahooonishi.carrd.co/) For Further Info about me~! <img width="50" height="50" alt="---" src="https://github.com/user-attachments/assets/94693129-52cd-41d2-bab4-3384931c6fe3" />
-## My [Strawpage](https://meetgojosatoruuu.straw.page) <img width="50" height="50" alt="---" src="https://github.com/user-attachments/assets/94693129-52cd-41d2-bab4-3384931c6fe3" />
+## My [Strawpage](https://meetgojosatoruuu.straw.page) <img width="1199" height="364" alt="56600a11a706180e2a17c1d48dba38ae" src="https://github.com/user-attachments/assets/43c29fac-205a-471f-8913-71f44b5bd690" />
+
 
 </div>
 
 <p align="center">
-<img width="498" height="281" alt="the-freak-circus-pierrot" src="https://github.com/user-attachments/assets/d6bc44d3-d0fe-418d-be5f-aea5cda06b76" /></center>
+
+
+<img width="558" height="206" alt="8cc3c3ab0c987929bece0ade42e43e65" src="https://github.com/user-attachments/assets/c6308e60-e792-4927-9f9a-435cdc359097" />
+
+  
+ <div align="center">  
 
 
 <div align="center">  
 
-  ## <img width="100" height="100" alt="pierrot-tfc" src="https://github.com/user-attachments/assets/d2519518-1f3f-4601-8412-68b9e25dde5a" /> READ BEFORE INT!
+  ## READ BEFORE INT! ♦
 
 </div>
 
@@ -23,7 +29,7 @@ Please int with me first before I consider adding you **thats unless you're pook
 
 <div align="center">  
 
-# DNI <img width="50" height="50" alt="---" src="https://github.com/user-attachments/assets/94693129-52cd-41d2-bab4-3384931c6fe3" />
+# DNI ♦
 
 
 </div>
@@ -34,7 +40,7 @@ I only consider 15+ years old otherwise if you're underage I will not tolerate b
 
 <div align="center">  
 
-# INT <img width="50" height="50" alt="---" src="https://github.com/user-attachments/assets/94693129-52cd-41d2-bab4-3384931c6fe3" />
+# INT ♦
 
 </div>
 
@@ -43,8 +49,7 @@ I usually sit down by my friends / Party / ppl I know, and afk there HOWEVER Ple
 
 <div align="center">  
 
-# in terms of block / hide  <img width="50" height="50" alt="---" src="https://github.com/user-attachments/assets/94693129-52cd-41d2-bab4-3384931c6fe3" />
-
+# in terms of block / hide  ♦
 </div>
 
 if you found yourself hidden / block by me  note that this is because you've done something I disliked, or just straight up problematic
@@ -52,6 +57,5 @@ if you found yourself hidden / block by me  note that this is because you've don
 
 if you are blocked permanently Yes, I just dislike being associated with you. However if you are willing to talk about it You may consider telling me or a friend of mine.
 
-<div align="center">  
-<img width="460" height="203" alt="pierrot-jester" src="https://github.com/user-attachments/assets/299c2b18-b9da-4133-8ce6-ad41bd582f12" />
+<img width="1200" height="800" alt="8af8f0c282627fe35044e38f3f7bbbc2" src="https://github.com/user-attachments/assets/1a579485-3714-4dc7-ad91-265429bb7f2f" />
 
