@@ -1,6 +1,7 @@
 <div align="center">  
   
-## Moshi Moooosh! Nishi / Pier Dayooo~~!! 👋
+## Greetings. ♦
+ My name Is Xavion.
 
   ### Please read My [Carrd](https://nyahooonishi.carrd.co/) For Further Info about me~! <img width="50" height="50" alt="---" src="https://github.com/user-attachments/assets/94693129-52cd-41d2-bab4-3384931c6fe3" />
 ## My [Strawpage](https://meetgojosatoruuu.straw.page) <img width="1199" height="364" alt="56600a11a706180e2a17c1d48dba38ae" src="https://github.com/user-attachments/assets/43c29fac-205a-471f-8913-71f44b5bd690" />
