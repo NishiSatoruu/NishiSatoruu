@@ -6,8 +6,7 @@
   ### 𝑷𝒍𝒆𝒂𝒔𝒆 𝒓𝒆𝒂𝒅 𝑴𝒚 [𝑪𝒂𝒓𝒓𝒅](https://nyahooonishi.carrd.co/) 𝑭𝒐𝒓 𝑭𝒖𝒓𝒕𝒉𝒆𝒓 𝑰𝒏𝒇𝒐 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆,
 ## 𝑴𝒚 [𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://meetgojosatoruuu.straw.page) 
 
-<img width="736" height="451" alt="986ce0c909ec67d0f8959000a9fb75f8" src="https://github.com/user-attachments/assets/9450b1a4-076e-487c-8cee-0c66f9379d21" />
-
+<img width="736" height="414" alt="594656bb09dbabeb79c2d95cc04a636a" src="https://github.com/user-attachments/assets/16ecea97-3f35-4518-875c-659c39215c3f" />
 
 
 
@@ -30,9 +29,8 @@
 𝙞𝙢 𝙫𝙚𝙧𝙮 𝙨𝙝𝙮 𝙖𝙣𝙙 𝙨𝙚𝙡𝙚𝙘𝙩𝙞𝙫𝙚 𝙗𝙪𝙩 𝙞𝙢 𝙘𝙤𝙤𝙡 𝙬𝙞𝙩𝙝 𝙢𝙚𝙚𝙩𝙞𝙣𝙜 𝙣𝙚𝙬 𝙥𝙤𝙤𝙠𝙞𝙚𝙨 !!  𝙋𝙡𝙚𝙖𝙨𝙚 𝙞𝙣𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚 𝙛𝙞𝙧𝙨𝙩 𝙗𝙚𝙛𝙤𝙧𝙚 𝙄 𝙘𝙤𝙣𝙨𝙞𝙙𝙚𝙧 𝙖𝙙𝙙𝙞𝙣𝙜 𝙮𝙤𝙪 **𝙩𝙝𝙖𝙩𝙨 𝙪𝙣𝙡𝙚𝙨𝙨 𝙮𝙤𝙪'𝙧𝙚 𝙥𝙤𝙤𝙠𝙞𝙚𝙨 𝙬𝙞𝙩𝙝 𝙢𝙮 𝙥𝙤𝙤𝙠𝙞𝙚𝙨** **𝙄 𝙖𝙢 𝙫𝙚𝙧𝙮 𝙞𝙣𝙩𝙧𝙤𝙫𝙚𝙧𝙩𝙚𝙙**, 𝙄 𝙝𝙖𝙫𝙚 𝙖 𝙝𝙖𝙧𝙙 𝙩𝙞𝙢𝙚 𝙈𝙖𝙠𝙞𝙣𝙜 𝙣𝙚𝙬 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 𝙡𝙚𝙩 𝙖𝙡𝙤𝙣𝙚 𝘿𝙤𝙞𝙣𝙜 𝙩𝙝𝙚 𝙛𝙞𝙧𝙨𝙩 𝙢𝙤𝙫𝙚𝙨, 𝙨𝙤 𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙘𝙪𝙙𝙙𝙡𝙚 𝙤𝙧 𝙞𝙣𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚!!
 <div align="center">  
 
-<img width="1200" height="675" alt="558a0e1e24bea00224814bae0d01a58b" src="https://github.com/user-attachments/assets/25ea6a30-31f0-44a4-a11f-8a29a3e3f67a" />
 
-
+<img width="736" height="414" alt="4ac2e37baebd1cf89d905991c652e275" src="https://github.com/user-attachments/assets/f5bbcec3-81bb-4341-8181-f5fd0cd958f4" />
 
 # 𝑫𝑵𝑰 ♦
 
@@ -56,5 +54,5 @@
 
 𝙞𝙛 𝙮𝙤𝙪 𝙛𝙤𝙪𝙣𝙙 𝙮𝙤𝙪𝙧𝙨𝙚𝙡𝙛 𝙝𝙞𝙙𝙙𝙚𝙣 / 𝙗𝙡𝙤𝙘𝙠 𝙗𝙮 𝙢𝙚  𝙣𝙤𝙩𝙚 𝙩𝙝𝙖𝙩 𝙩𝙝𝙞𝙨 𝙞𝙨 𝙗𝙚𝙘𝙖𝙪𝙨𝙚 𝙮𝙤𝙪'𝙫𝙚 𝙙𝙤𝙣𝙚 𝙨𝙤𝙢𝙚𝙩𝙝𝙞𝙣𝙜 𝙄 𝙙𝙞𝙨𝙡𝙞𝙠𝙚𝙙, 𝙤𝙧 𝙟𝙪𝙨𝙩 𝙨𝙩𝙧𝙖𝙞𝙜𝙝𝙩 𝙪𝙥 𝙥𝙧𝙤𝙗𝙡𝙚𝙢𝙖𝙩𝙞𝙘 **𝙝𝙤𝙬𝙚𝙫𝙚𝙧 𝙄 𝙙𝙤𝙣'𝙩 𝙗𝙡𝙤𝙘𝙠 𝙥𝙚𝙤𝙥𝙡𝙚 𝙥𝙚𝙧𝙢𝙖𝙣𝙚𝙣𝙩𝙡𝙮~!!**  𝙞𝙛 𝙮𝙤𝙪 𝙖𝙧𝙚 𝙗𝙡𝙤𝙘𝙠𝙚𝙙 𝙥𝙚𝙧𝙢𝙖𝙣𝙚𝙣𝙩𝙡𝙮 𝙔𝙚𝙨, 𝙄 𝙟𝙪𝙨𝙩 𝙙𝙞𝙨𝙡𝙞𝙠𝙚 𝙗𝙚𝙞𝙣𝙜 𝙖𝙨𝙨𝙤𝙘𝙞𝙖𝙩𝙚𝙙 𝙬𝙞𝙩𝙝 𝙮𝙤𝙪. 𝙃𝙤𝙬𝙚𝙫𝙚𝙧 𝙞𝙛 𝙮𝙤𝙪 𝙖𝙧𝙚 𝙬𝙞𝙡𝙡𝙞𝙣𝙜 𝙩𝙤 𝙩𝙖𝙡𝙠 𝙖𝙗𝙤𝙪𝙩 𝙞𝙩 𝙔𝙤𝙪 𝙢𝙖𝙮 𝙘𝙤𝙣𝙨𝙞𝙙𝙚𝙧 𝙩𝙚𝙡𝙡𝙞𝙣𝙜 𝙢𝙚 𝙤𝙧 𝙖 𝙛𝙧𝙞𝙚𝙣𝙙 𝙤𝙛 𝙢𝙞𝙣𝙚.
 
-<img width="1200" height="547" alt="6f0e1db00a533d2d19fc21530e295ce5" src="https://github.com/user-attachments/assets/9c9c9aa6-1a2a-46b8-b85a-513acb11a53b" />
+<img width="1198" height="511" alt="645fea005c424bffbdf240ad36b365f9" src="https://github.com/user-attachments/assets/e45b6d38-d9b1-4987-a56c-7be81340a81a" />
 
