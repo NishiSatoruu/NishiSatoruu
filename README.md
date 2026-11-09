@@ -4,7 +4,11 @@
 𝐌𝐲 𝐧𝐚𝐦𝐞 𝐈𝐬 𝐗𝐚𝐯𝐢𝐨𝐧.
 
   ### 𝑷𝒍𝒆𝒂𝒔𝒆 𝒓𝒆𝒂𝒅 𝑴𝒚 [𝑪𝒂𝒓𝒓𝒅](https://nyahooonishi.carrd.co/) 𝑭𝒐𝒓 𝑭𝒖𝒓𝒕𝒉𝒆𝒓 𝑰𝒏𝒇𝒐 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆,
-## 𝑴𝒚 [𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://meetgojosatoruuu.straw.page) <img width="1199" height="364" alt="56600a11a706180e2a17c1d48dba38ae" src="https://github.com/user-attachments/assets/43c29fac-205a-471f-8913-71f44b5bd690" />
+## 𝑴𝒚 [𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://meetgojosatoruuu.straw.page) 
+
+<img width="736" height="451" alt="986ce0c909ec67d0f8959000a9fb75f8" src="https://github.com/user-attachments/assets/9450b1a4-076e-487c-8cee-0c66f9379d21" />
+
+
 
 
 </div>
@@ -26,6 +30,10 @@
 
 𝙞𝙢 𝙫𝙚𝙧𝙮 𝙨𝙝𝙮 𝙖𝙣𝙙 𝙨𝙚𝙡𝙚𝙘𝙩𝙞𝙫𝙚 𝙗𝙪𝙩 𝙞𝙢 𝙘𝙤𝙤𝙡 𝙬𝙞𝙩𝙝 𝙢𝙚𝙚𝙩𝙞𝙣𝙜 𝙣𝙚𝙬 𝙥𝙤𝙤𝙠𝙞𝙚𝙨 !!  𝙋𝙡𝙚𝙖𝙨𝙚 𝙞𝙣𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚 𝙛𝙞𝙧𝙨𝙩 𝙗𝙚𝙛𝙤𝙧𝙚 𝙄 𝙘𝙤𝙣𝙨𝙞𝙙𝙚𝙧 𝙖𝙙𝙙𝙞𝙣𝙜 𝙮𝙤𝙪 **𝙩𝙝𝙖𝙩𝙨 𝙪𝙣𝙡𝙚𝙨𝙨 𝙮𝙤𝙪'𝙧𝙚 𝙥𝙤𝙤𝙠𝙞𝙚𝙨 𝙬𝙞𝙩𝙝 𝙢𝙮 𝙥𝙤𝙤𝙠𝙞𝙚𝙨** **𝙄 𝙖𝙢 𝙫𝙚𝙧𝙮 𝙞𝙣𝙩𝙧𝙤𝙫𝙚𝙧𝙩𝙚𝙙**, 𝙄 𝙝𝙖𝙫𝙚 𝙖 𝙝𝙖𝙧𝙙 𝙩𝙞𝙢𝙚 𝙈𝙖𝙠𝙞𝙣𝙜 𝙣𝙚𝙬 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 𝙡𝙚𝙩 𝙖𝙡𝙤𝙣𝙚 𝘿𝙤𝙞𝙣𝙜 𝙩𝙝𝙚 𝙛𝙞𝙧𝙨𝙩 𝙢𝙤𝙫𝙚𝙨, 𝙨𝙤 𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙘𝙪𝙙𝙙𝙡𝙚 𝙤𝙧 𝙞𝙣𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚!!
 <div align="center">  
+
+<img width="1200" height="675" alt="558a0e1e24bea00224814bae0d01a58b" src="https://github.com/user-attachments/assets/25ea6a30-31f0-44a4-a11f-8a29a3e3f67a" />
+
+
 
 # 𝑫𝑵𝑰 ♦
 
@@ -49,5 +57,5 @@
 
 𝙞𝙛 𝙮𝙤𝙪 𝙛𝙤𝙪𝙣𝙙 𝙮𝙤𝙪𝙧𝙨𝙚𝙡𝙛 𝙝𝙞𝙙𝙙𝙚𝙣 / 𝙗𝙡𝙤𝙘𝙠 𝙗𝙮 𝙢𝙚  𝙣𝙤𝙩𝙚 𝙩𝙝𝙖𝙩 𝙩𝙝𝙞𝙨 𝙞𝙨 𝙗𝙚𝙘𝙖𝙪𝙨𝙚 𝙮𝙤𝙪'𝙫𝙚 𝙙𝙤𝙣𝙚 𝙨𝙤𝙢𝙚𝙩𝙝𝙞𝙣𝙜 𝙄 𝙙𝙞𝙨𝙡𝙞𝙠𝙚𝙙, 𝙤𝙧 𝙟𝙪𝙨𝙩 𝙨𝙩𝙧𝙖𝙞𝙜𝙝𝙩 𝙪𝙥 𝙥𝙧𝙤𝙗𝙡𝙚𝙢𝙖𝙩𝙞𝙘 **𝙝𝙤𝙬𝙚𝙫𝙚𝙧 𝙄 𝙙𝙤𝙣'𝙩 𝙗𝙡𝙤𝙘𝙠 𝙥𝙚𝙤𝙥𝙡𝙚 𝙥𝙚𝙧𝙢𝙖𝙣𝙚𝙣𝙩𝙡𝙮~!!**  𝙞𝙛 𝙮𝙤𝙪 𝙖𝙧𝙚 𝙗𝙡𝙤𝙘𝙠𝙚𝙙 𝙥𝙚𝙧𝙢𝙖𝙣𝙚𝙣𝙩𝙡𝙮 𝙔𝙚𝙨, 𝙄 𝙟𝙪𝙨𝙩 𝙙𝙞𝙨𝙡𝙞𝙠𝙚 𝙗𝙚𝙞𝙣𝙜 𝙖𝙨𝙨𝙤𝙘𝙞𝙖𝙩𝙚𝙙 𝙬𝙞𝙩𝙝 𝙮𝙤𝙪. 𝙃𝙤𝙬𝙚𝙫𝙚𝙧 𝙞𝙛 𝙮𝙤𝙪 𝙖𝙧𝙚 𝙬𝙞𝙡𝙡𝙞𝙣𝙜 𝙩𝙤 𝙩𝙖𝙡𝙠 𝙖𝙗𝙤𝙪𝙩 𝙞𝙩 𝙔𝙤𝙪 𝙢𝙖𝙮 𝙘𝙤𝙣𝙨𝙞𝙙𝙚𝙧 𝙩𝙚𝙡𝙡𝙞𝙣𝙜 𝙢𝙚 𝙤𝙧 𝙖 𝙛𝙧𝙞𝙚𝙣𝙙 𝙤𝙛 𝙢𝙞𝙣𝙚.
 
-<img width="1200" height="800" alt="8af8f0c282627fe35044e38f3f7bbbc2" src="https://github.com/user-attachments/assets/1a579485-3714-4dc7-ad91-265429bb7f2f" />
+<img width="1200" height="547" alt="6f0e1db00a533d2d19fc21530e295ce5" src="https://github.com/user-attachments/assets/9c9c9aa6-1a2a-46b8-b85a-513acb11a53b" />
 
