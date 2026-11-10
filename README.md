@@ -6,7 +6,9 @@
   ### 𝑷𝒍𝒆𝒂𝒔𝒆 𝒓𝒆𝒂𝒅 𝑴𝒚 [𝑪𝒂𝒓𝒓𝒅](https://nyahooonishi.carrd.co/) 𝑭𝒐𝒓 𝑭𝒖𝒓𝒕𝒉𝒆𝒓 𝑰𝒏𝒇𝒐 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆,
 ## 𝑴𝒚 [𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://meetgojosatoruuu.straw.page) 
 
-<img width="736" height="414" alt="594656bb09dbabeb79c2d95cc04a636a" src="https://github.com/user-attachments/assets/16ecea97-3f35-4518-875c-659c39215c3f" />
+<img width="498" height="281" alt="E512CDBD-E548-49BF-A032-85F60CA4D6C1" src="https://github.com/user-attachments/assets/c41be05c-3aac-4d1d-a65b-e8a4927bc761" />
+
+
 
 
 
